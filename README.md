@@ -1,3 +1,3 @@
 # Demo
 
-Something something here! ;)
+Something about myself is not myself, so why write it? ;)
